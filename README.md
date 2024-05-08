@@ -32,3 +32,5 @@
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=0xmohitsen&show_icons=true&locale=en" alt="0xmohitsen" /></p>
 
 <p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=0xmohitsen&" alt="oxmohitsen" /></p>
+
+[![An image of @mohitsen11's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/mohitsen11)](https://holopin.io/@mohitsen11)
