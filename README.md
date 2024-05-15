@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mohitsen0102@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1EJ64R6lYw3OGLs6lT5SgH3uw-UQg7AwY/view?usp=drive_link](https://drive.google.com/file/d/1EJ64R6lYw3OGLs6lT5SgH3uw-UQg7AwY/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1dxO8Rv3-pcUuIfNF4Gs4dXZXRN6ogf99/view?usp=sharing](https://drive.google.com/file/d/1dxO8Rv3-pcUuIfNF4Gs4dXZXRN6ogf99/view?usp=sharing)
 
 - ⚡ Fun fact **I am a mischief person**
 
