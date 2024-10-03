@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mohitsen0102@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1Y6FH4wDfsUxevcD_y3lmXpVX2W44k70G/view?usp=sharing)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/18m5Owt1ue-r8l1M8zXlUKpiP4SYP_Owk/view?usp=sharing)
 
 - ⚡ Fun fact **I am a mischief person**
 
